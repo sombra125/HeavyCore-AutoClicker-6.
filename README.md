@@ -1,0 +1,1 @@
+# HeavyCore-AutoClicker-6.
